@@ -1,1 +1,25 @@
-firstly, i dont like to share my real name to people, so usually people call me by my oc's name, "Ren" or by my social name "Yushie". I am an outgoing person, i love creating new ocs, and i love to hang out with my friends. I play pony town most of the time but when im not playing pony town i play mlbb which i love playing the most i guess. 281845920: this is my mlbb id, add me so we can play together! i also play pjsk,671290173300129796, this is my pjsk id. i really would like to play together :D. i love drawing and listening to music, casual things. but I also have a electro guitar. I bought it with my friend and im learning how to play it with my friend by my side. There is not much things i dislike, but i dont love it when people make joke of things that cant have a joke abt or normalize things that cant be normalized. I hate it. And i dont really love it when people insults me or my friends and call it a "joke" which is a topic that i can easily start a argument about.(like insulting my mother etc.) I wont hesitate to defend my friends if theyre on the right side, thats all i guess, thank you for reading 🤏🤏
+★ yushie
+welcome to my little corner. ♡
+╭─────────────── ୨୧ ───────────────╮
+name — yushie
+age — 16
+pronouns — she/her
+from — turkey
+╰─────────────── ୨୧ ───────────────╯
+? about
+just a random person spending way too much time on the internet.
+I like making little things, discovering new interests and playing electro guitar.
+I'm always happy to meet people with similar interests, so feel free to say hi!
+
+୨୧ before you interact
+I'm generally pretty chill, but I appreciate people who are respectful and know how to respect boundaries.
+Please don't start unnecessary arguments or bring drama into my space.
+We're here to have fun, not make everything complicated.
+
+dni
+basic dni criteria
+racists · homophobes · transphobes
+ableists · sexists · pedophiles
+proshippers · harassers · people who disrespect boundaries
+
+thanks for stopping by ♡
