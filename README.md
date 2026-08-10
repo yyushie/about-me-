@@ -1,11 +1,10 @@
-★ yushie
-welcome to my little corner. ♡
-╭─────────────── ୨୧ ───────────────╮
-name — yushie
-age — 16
-pronouns — she/her
-from — turkey
-╰─────────────── ୨୧ ───────────────╯
+★ 
+
+   name — yushie
+    age — 16
+  pronouns — she/her
+    from — turkey
+
 ? about
 just a random person spending way too much time on the internet.
 I like making little things, discovering new interests and playing electro guitar.
