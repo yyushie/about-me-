@@ -1,3 +1,4 @@
+putting a few info abt me here because im too lazy to make an actual one😭
 ★ my name is yushie, im 16 years old and im from Turkiye.
 
 about ->
